@@ -1,1 +1,1 @@
-<img align="right" alt="Coding" width="400" src="https://cdn.discordapp.com/attachments/1157673472894435439/1248628287173951580/1Untitled.png?ex=66645b36&is=666309b6&hm=f3fd46e2a3f583dbbd60d2cb11555900fd3175673ad0cc939101ebc445bc4bb7&">
+[![MasterHead](https://cdn.discordapp.com/attachments/1157673472894435439/1248628287173951580/1Untitled.png?ex=66645b36&is=666309b6&hm=f3fd46e2a3f583dbbd60d2cb11555900fd3175673ad0cc939101ebc445bc4bb7&)](https://rishavchanda.io)
