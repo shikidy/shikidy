@@ -1,1 +1,1 @@
-[![MasterHead](https://cdn.discordapp.com/attachments/1157673472894435439/1248628287173951580/1Untitled.png?ex=66645b36&is=666309b6&hm=f3fd46e2a3f583dbbd60d2cb11555900fd3175673ad0cc939101ebc445bc4bb7&)](https://rishavchanda.io)
+[![MasterHead](https://i.pinimg.com/736x/e8/fd/39/e8fd39d521cb1b9eb5e3d48cef1062b7.jpg)](https://google.com)
